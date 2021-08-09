@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @danielweeks83
+- 👀 I’m interested in Devlopers across all levels for work in the UK
+- 💞️ I’m looking to collaborate on ... work projects for my clients
+- 📫 How to reach me ... daniel@shawdaniels.co.uk / +44 (0)127630070 / https://www.linkedin.com/in/danielweeks402/?originalSubdomain=uk 
+Shaw Daniels Solutions (SDS) is dedicated to making a real difference to the recruitment and staffing industry within the IT, SAP and Associated technology sector for Companies across Europe. With over forty two years of combined experience our knowledge within the Technology Verticals has grown and so has our reputation. Here at Shaw Daniels Solutions we pride ourselves on our resourcing expertise to bring the top ERP, IT and Associated talent to our Clients and through this the best opportunities to our top talent. As a Niche Consultancy we pride ourselves on our bespoke service by providing our Clients with IT, SAP and Associated technology specialists from Graduates and Juniors through to Experienced, Senior, C-suite and Directorship level. Our offerings include these Consultants on a Permanent, Fixed term Contract and Independent Contractor basis.
+https://shawdaniels.co.uk/disciplines/ 
